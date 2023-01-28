@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Uma Mina.
-- 🌱 I’m a btech IT graduate.
+- 🌱 I’m a btech graduate.
 - 💞️ I’m looking for gaining more knowldge and experience in the field of technology.
 - 📫 How to reach me umamina11@gmail.com
 
